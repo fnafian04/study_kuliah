@@ -1,1 +1,1 @@
-# study_kuliah
+# study
